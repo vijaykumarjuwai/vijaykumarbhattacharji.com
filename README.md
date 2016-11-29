@@ -1,2 +1,0 @@
-# vijaykumarbhattacharji.com
-My Website
